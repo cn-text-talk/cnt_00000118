@@ -6,9 +6,12 @@
 <br>$\textsf{\color{red   }{法轮功：强迫迫害法轮功的,(中国/美国Intel)男魔(源于非洲),}}$
 <br>$\textsf{\color{red   }{回非洲开[X男妓X院][男男支院],}}$
 <br>$\textsf{\color{red   }{[为其][女他心通][提供性服务][了没]？：}}$
+<br>$\textsf{\color{red   }{[为其][女他心通][做X男奴X隶][做男男又隶][了没]？：}}$
 </h3>
 <h1>$\textsf{\color{red   }{(例如：听从女心通意愿,男裸体在女心通面前.)...}}$</h1>
 <br>
-<h3>迫害法轮功的,(中国/美国Intel)男魔,那么低格,卖到[X男妓X院][男男支院]那里做[X妓男X][男支男]好了,不要了......</h3>
+<h3>迫害法轮功的,(中国/美国Intel)男魔,那么低格,
+<br>卖到[X男妓X院][男男支院]那里做[X妓男X][男支男],
+<br>[为其][女他心通][做X男奴X隶][做男男又隶],好了,不要了......</h3>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
